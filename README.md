@@ -8,7 +8,7 @@ He is also my Favorite Football player.
 
 
 ## José Mourinho 
- Is a Portugese Coach wich is one of the best in the world.
+ Is a Portugese Coach which is one of the best in the world.
  He coached the best players in the world like Manchester United,Real Madrid and also the FC Porto.
  He won the Italian Portugese and Spanish Championships.
  
